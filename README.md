@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @unfaithful0393
+- 👀 I’m interested in philosophy, logic, gaming, quality of life, optimization, and much more!
+- 🌱 I’m currently learning how to translate my extensive understanding of logic and data structures into a portfolio to display my ability.
+- 💞️ I’m looking to collaborate on anything under the sun.
+- 📫 How to reach me: by e-mail Alexdepasquale@hotmail.com
